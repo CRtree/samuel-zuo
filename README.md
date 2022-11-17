@@ -1,2 +1,2 @@
-# samuel-zuo.github.io
-Samuel Zuo Pages
+# samuel-zuo.home
+nothing to say
